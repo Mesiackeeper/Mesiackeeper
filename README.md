@@ -13,18 +13,19 @@
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <br> </br>
 <b>DNI OR IWEC?!</b>
-- Basic Dni
-- Pro shippers, etc (Dni)
-- Kys, kms and any suicide related type jokes
-- You will be hidden if you say those type of jokes
+
+ - Basic Dni
+ - Pro shippers, etc (Dni)
+ - Kys, kms and any suicide related type jokes
+ - You will be hidden if you say those type of jokes
 - Sexual jokes are a no. You will be hidden if you say them towards me
 - Persona 5 fans are on thin ice. Don’t interact with me as a P5 pony unless I interact with you first
 - Don’t drag me into unnecessary drama
 - Don’t joke flirt with me unless you’re a friend
-- Genderbends or feminizations of characters that are not canon
+- Genderbends or feminizations of characters that are not canon </p>
 <br> </br>
 <p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
-**BFYI** You should know...
+<b>BFYI</b> You should know...
 
 - Even though I’m a Persona 5 fan, I will rarely talk to others from the fandom. People that mischaracterize Akechi can get lost.
 - Often off-tab and won’t talk first unless spoken to first.
