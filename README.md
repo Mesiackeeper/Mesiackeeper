@@ -7,11 +7,11 @@
 <body>
 ┏ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┓
 <br> </br>
-  
+ ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock (Nagi), Idv, Honkai Star Rail, and Ensemble Stars. Feel free to come and interact with me if you’re into any of these fandoms.</p>
+ ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <br> </br>
 <b>DNI OR IWEC?!</b>
-
 - Basic Dni
 - Pro shippers, etc (Dni)
 - Kys, kms and any suicide related type jokes
@@ -21,8 +21,10 @@
 - Don’t drag me into unnecessary drama
 - Don’t joke flirt with me unless you’re a friend
 - Genderbends or feminizations of characters that are not canon
-
+  <br> </br>
+<p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 <br> </br>
+<p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 **BFYI** You should know...
 
 - Even though I’m a Persona 5 fan, I will rarely talk to others from the fandom. People that mischaracterize Akechi can get lost.
@@ -32,6 +34,7 @@
 - I have a bad fear of snakes, so don’t go into detail talk about them while talking to me. All other reptiles are fine though.
 - Has a bad habit of rambling on accident, so do tell me if I’m going on for too long.
 - Very forgetful and has a bad memory. If I don’t remember topics I’m sorry, please bare with me
+<p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 <br> </br>
 
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
