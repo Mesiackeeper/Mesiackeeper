@@ -39,7 +39,8 @@
 <br> </br>
 </body>
 </div>
-![](https://media.discordapp.net/attachments/1381043410114449571/1446730742523756584/image.png?ex=69350c7f&is=6933baff&hm=0c15c2bf764a32e563b6b44b8504d58121479d4c49b86cec209f1bc7facbd8ee&=&format=webp&quality=lossless&width=866&height=386)
+
+![](https://media.discordapp.net/attachments/1381043410114449571/1446730742523756584/image.png?ex=693706bf&is=6935b53f&hm=123421404dede458e6dcd4f5b6cd4f4da2e209e8c2709f906e2f6be37cb19e71&=&format=webp&quality=lossless&width=866&height=386)
 
 
 <!--
