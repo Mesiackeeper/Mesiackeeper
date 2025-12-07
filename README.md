@@ -7,6 +7,7 @@
 <body>
 ┏ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┓
 <br> </br>
+ 
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock (Nagi), Idv, Honkai Star Rail, and Ensemble Stars. Feel free to come and interact with me if you’re into any of these fandoms.</p>
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
@@ -21,8 +22,6 @@
 - Don’t drag me into unnecessary drama
 - Don’t joke flirt with me unless you’re a friend
 - Genderbends or feminizations of characters that are not canon
-  <br> </br>
-<p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 <br> </br>
 <p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 **BFYI** You should know...
@@ -36,11 +35,10 @@
 - Very forgetful and has a bad memory. If I don’t remember topics I’m sorry, please bare with me
 <p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 <br> </br>
-
 ┗ ━ ✦ ❘ ༻ 𓉸 ༺ ❘ ✦ ━ ━ ┛
+<br> </br>
 </body>
 </div>
-
 ![](https://media.discordapp.net/attachments/1381043410114449571/1446730742523756584/image.png?ex=69350c7f&is=6933baff&hm=0c15c2bf764a32e563b6b44b8504d58121479d4c49b86cec209f1bc7facbd8ee&=&format=webp&quality=lossless&width=866&height=386)
 
 
