@@ -9,7 +9,7 @@
 <br> </br>
  
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock (Nagi), Idv, Honkai Star Rail, and Ensemble Stars. Feel free to come and interact with me if you’re into any of these fandoms.</p>
+<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock, Idv, Honkai Star Rail, and Ensemble Stars. Feel free to come and interact with me if you’re into any of these fandoms.</p>
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <br> </br>
 <b>DNI OR IWEC?!</b>
@@ -41,7 +41,6 @@
 </div>
 
 ![](https://media.discordapp.net/attachments/1381043410114449571/1446730742523756584/image.png?ex=693706bf&is=6935b53f&hm=123421404dede458e6dcd4f5b6cd4f4da2e209e8c2709f906e2f6be37cb19e71&=&format=webp&quality=lossless&width=866&height=386)
-
 
 <!--
 **Mesiackeeper/Mesiackeeper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
