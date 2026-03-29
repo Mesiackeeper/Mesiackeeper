@@ -22,7 +22,7 @@
 - Persona 5 fans are on thin ice. Don’t interact with me as a P5 pony unless I interact with you first
 - Don’t drag me into unnecessary drama
 - Don’t joke flirt with me unless you’re a friend
-- Genderbends or feminizations of characters that are not canon </p>
+- 
 <br> </br>
 <p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
 <b>BFYI</b> You should know...
