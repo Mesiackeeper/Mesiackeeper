@@ -9,7 +9,7 @@
 <br> </br>
  
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock, Idv, Honkai Star Rail, and Ensemble Stars. Feel free to come and interact with me if you’re into any of these fandoms.</p>
+<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock, Idv, Honkai Star Rail, and Ensemble Stars (HokutoP). Feel free to come and interact with me if you’re into any of these fandoms.</p>
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <br> </br>
 <b>DNI OR IWEC?!</b>
