@@ -9,7 +9,7 @@
 <br> </br>
  
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. I’m a huge Mezzo” fan as you can tell by my strawpage, and they both mean a lot to me. Besides Idolish7, the other fandoms I’m very into are: Fire Emblem, Blue Lock, Idv, Honkai Star Rail, and Ensemble Stars (HokutoP). Feel free to come and interact with me if you’re into any of these fandoms.</p>
+<p>Hello there everyone! My name is Messi, but you’re also free to call me Mesiac or any other name you can think of. The main fandoms that i'm into are: Fire Emblem, Blue Lock, Idolish7, Identity V, Honkai Star Rail, and Ensemble Stars (HokutoP). Feel free to come and interact with me if you’re into any of these fandoms. Ship wise, I enjoy: Leokumi, Nagireo, Orphrick, Elisop, Richgar, Dancae, and Eichoku. </p>
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 <br> </br>
 <b>DNI OR IWEC?!</b>
@@ -17,7 +17,6 @@
  - Basic Dni
  - Pro shippers, etc (Dni)
  - Kys, kms and any suicide related type jokes
- - You will be hidden if you say those type of jokes
 - Sexual jokes are a no. You will be hidden if you say them towards me
 - Persona 5 fans are on thin ice. Don’t interact with me as a P5 pony unless I interact with you first
 - Don’t drag me into unnecessary drama
@@ -28,9 +27,7 @@
 
 - Even though I’m a Persona 5 fan, I will rarely talk to others from the fandom. People that mischaracterize Akechi can get lost.
 - Often off-tab and won’t talk first unless spoken to first.
-- Sometimes will go non-verbal. When this happens I’ll only respond with emotes or won’t react at all.
 - Dislike all types of sexual talk/acts, and will walk away if you start talking about it near me.
-- I have a bad fear of snakes, so don’t go into detail talk about them while talking to me. All other reptiles are fine though.
 - Has a bad habit of rambling on accident, so do tell me if I’m going on for too long.
 - Very forgetful and has a bad memory. If I don’t remember topics I’m sorry, please bare with me
 <p> ㅤㅤ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── </p>
