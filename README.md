@@ -9,7 +9,7 @@
 <br> </br>
  
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
-<p>Hello everyone, the name is Messi unless you know me from Identity V, then I now go by COMPOSERHATER over there. (No I don’t hate him as most always think.. I’m matching Orphrick with my husband) I’m typically sleeping or off tab whenever I’m on ponytown, yet there’s a decent amount of time where I’m active as well! Do whisper if you don’t see me moving or chatting, I’ll respond once I am able to <3. (If I dont, assume I passed out.)
+<p>Hello everyone, the name is Messi unless you know me from Identity V, then I now go by COMPOSERHATER over there. (No I don’t hate him as most always think.. I’m matching Orphrick with my husband) I’m typically sleeping or off tab whenever I’m on ponytown, yet there’s a decent amount of time where I’m active as well! Do whisper if you don’t see me moving or chatting, I’ll respond once I am able to <3. (If I dont, assume I passed out.) Main language is English, yet currently learning Russian and French.
 
 I loveee meeting new people, so come ahead and sit with me, or us if I’m with others. I would love to meet and become friends with you all! Also, roleplay is okay! Just tell me beforehand.</p>
  ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
