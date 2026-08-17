@@ -1,5 +1,5 @@
 
-https://cdn.discordapp.com/attachments/1381043410114449571/1446730852645208196/image.png?ex=69350c9a&is=6933bb1a&hm=739d69147889d62f1bbca6bf8b495003cbf6c46f892c0a8cb1528100859be25e
+
 
 <h1> : Welcome to my hellscape! : </h1>
 <div>
